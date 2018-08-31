@@ -1,2 +1,0 @@
-# Vabljenje.github.io
-invitation
